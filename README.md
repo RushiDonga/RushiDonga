@@ -2,7 +2,7 @@
 
 My name is **Rushi Donga**. I'm a technically inclined individual with a great **Computer**, **Math** and **Communication skills**, coming with a passion to learn new stuff and work with people with same intrests to gain some amazing new skills.
 
-  <img align="right" src="https://user-images.githubusercontent.com/65907580/161374224-f4ca38b1-8ca0-4730-bc26-643237906783.jpg" width="400" height="350" />
+  <img align="right" src="https://user-images.githubusercontent.com/65907580/161381986-440d3507-a77d-4747-a9dc-87f00b508af3.png" width="400" height="350" />
   
 **Talking about Personal Stuffs:**
 
